@@ -1,1 +1,1 @@
-It is just what it sounds like.
+Just what it sounds like.
